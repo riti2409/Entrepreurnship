@@ -1,0 +1,2 @@
+# Entrepreurnship
+Notes of Entrepreurnship
